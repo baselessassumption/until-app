@@ -14,4 +14,4 @@ Until is not directed at children under 13. It does not knowingly collect any in
 Changes to this policy
 If this policy changes in a future version, we will update this page and note the change in the app's release notes on the Mac App Store.
 Contact
-Questions about this policy? Email davidovic.milosh@icloud.com
+Questions about this policy? Email baselessassumption@outlook.com
